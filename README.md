@@ -1,2 +1,0 @@
-# Mijn-Site
-Yer mum
